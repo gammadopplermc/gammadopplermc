@@ -1,2 +1,2 @@
-# i got nothing important to say
+# rackz ontop of da bandz
 - discord: gamma#4919
