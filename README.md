@@ -1,2 +1,2 @@
-# rackz ontop of da bandz
-<3
+# gammadoppler
+### (I don't have a Gamma Doppler :< )
