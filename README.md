@@ -1,2 +1,2 @@
 # gammadoppler
-### (Karambit Emerald Gamma Doppler ♥‿♥ )
+### (unfortunately not an owner of one ¬_¬ )
