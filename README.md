@@ -1,2 +1,2 @@
 # gammadoppler
-### (I don't have a Gamma Doppler :< )
+### (Karambit Emerald Gamma Doppler ♥‿♥ )
