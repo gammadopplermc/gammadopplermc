@@ -8,3 +8,8 @@ currently i'm working on lots of stuff with Java, but i'm also using Python, and
 - Constal Operation Surveillance
 - Constal Discord Bot
 - Duality Utility Mod
+### where you can find me
+all of my socials can be found here
+- [NameMC](https://namemc.com/gammadoppler)
+- [Twitter](https://twitter.com/gamadplr)
+- [YouTube](https://w)ww.youtube.com/channel/UCrLk4iIQKRsok7j9NpGzu_g)
