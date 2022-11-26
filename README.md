@@ -5,8 +5,8 @@ hey! i'm a java developer however i may dabble in some other languages depending
 currently i'm working on lots of stuff with Java, but i'm also using Python, and also doing a liiiiiiiittle bit of C++ and C#.<br>
 <br>
 **my top priorities right now:**<br>
-- Constal Operation Surveillance
-- Constal Discord Bot
+- DarkAster Bot
+- DarkAster Sniper
 - Duality Utility Mod
 ### where you can find me
 all of my socials can be found here
